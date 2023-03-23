@@ -12,7 +12,7 @@
 
 51吃瓜TG官方群 https://t.me/https51cgfun/13/
 
-加入微信扣扣粉丝群： https://51cg.app/?path=/qun.html
+加入微信扣扣粉丝群： https://ccgg.tv/?path=/qun.html
 
 
 
