@@ -2,7 +2,7 @@
 
 51吃瓜最新官网 https://ccgg.pro/ 
 
-51吃瓜免费App  https://chg.app004.me/
+51吃瓜免费App  https://chg.app004.net/
 
 51吃瓜备用线路 https://51cg.online/
 
@@ -26,7 +26,7 @@
 
 4.以上方法都不行请截图发送给群管理反馈～
 
-5.下载蚂蚁加速器：(https://ant.aff009.net/c-5016/a-brEXR)  科学上网工具
+5.下载蚂蚁加速器：(https://ant.aff009.org/c-5016/a-brEXR)  科学上网工具
 
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
