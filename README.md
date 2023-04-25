@@ -1,4 +1,4 @@
-### 51吃瓜网 最新地址 👋 (最新更新时间2023-04-24)
+### 51吃瓜网 最新地址 👋 (最新更新时间2023-04-25)
 
 51吃瓜最新官网 https://ccgg.me/ 
 
@@ -12,7 +12,7 @@
 
 51吃瓜TG官方群 https://t.me/https51cgfun/13
 
-加入微信扣扣粉丝群： https://ccgg.pro/?path=/qun.html
+加入微信扣扣粉丝群： https://ccgg.me/?path=/qun.html
 
 
 
