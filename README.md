@@ -1,12 +1,12 @@
-### 51吃瓜网 最新地址 👋 (最新更新时间2023-04-26)
+### 51吃瓜网 最新地址 👋 (最新更新时间2023-05-05)
 
-51吃瓜最新官网 https://ccgg.me
+51吃瓜免费App  https://chga.mesft.com
 
-51吃瓜免费App  https://chg.mesft.com
+51吃瓜网页版最新官网 https://ccgg.me
 
-51吃瓜备用线路 https://ccgg.pro
+51吃瓜备用线路1 https://51cg.website
 
-51吃瓜备用线路 https://51cg.app
+51吃瓜备用线路2 https://51cg.cloud
 
 51吃瓜永久地址（需科学⬆️网工具）https://51cg.fun
 
