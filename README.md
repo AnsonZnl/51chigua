@@ -1,6 +1,6 @@
-### 51吃瓜网 最新地址 👋 (最新更新时间2023-05-06)
+### 51吃瓜网 最新地址 👋 (最新更新时间2023-05-11)
 
-51吃瓜免费App  https://chg.huimoer.com
+51吃瓜免费App  https://8pnhin.myeyxm.com
 
 51吃瓜网页版最新官网 https://ccgg.me
 
