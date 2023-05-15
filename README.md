@@ -2,6 +2,8 @@
 
 51吃瓜免费App  https://8pnhin.myeyxm.com
 
+51吃瓜免费App 安卓下载安装包（备用） https://github.com/51chigua/51chigua/blob/main/51cg_1.7.0_230514_5.apk
+
 51吃瓜网页版最新官网 https://ccgg.me
 
 51吃瓜备用线路1 https://51cg.website
