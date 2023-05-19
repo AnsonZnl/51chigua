@@ -1,6 +1,6 @@
-### 51吃瓜网 最新地址 👋 (最新更新时间2023-05-11)
+### 51吃瓜网 最新地址 👋 (最新更新时间2023-05-19)
 
-51吃瓜免费App  https://8pnhin.myeyxm.com
+51吃瓜免费App  https://4wqx13.myeyxm.com
 
 51吃瓜免费App 安卓下载安装包（备用） https://github.com/51chigua/51chigua/blob/main/51cg_1.7.0_230514_5.apk
 
@@ -30,7 +30,7 @@
 
 4.以上方法都不行请截图发送给群管理反馈～
 
-5.下载蚂蚁加速器：(https://a1.obqyyh.com/c-5016/a-brEXR)  科学上网工具
+5.下载蚂蚁加速器：https://a2.obqyyh.com/c-5016/a-brEXR  科学上网工具
 
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
