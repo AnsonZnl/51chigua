@@ -19,7 +19,7 @@
 
 51吃瓜免费App 安卓下载安装包（备用下载方式） https://github.com/51chigua/51chigua/blob/main/51cg_1.7.0_230514_5.apk
 
-
+51吃瓜免费App iOS下载安装（备用下载方式） https://aff.cggo.life/index/pwa
 
 ----------------------------
 
