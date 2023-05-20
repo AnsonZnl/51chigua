@@ -2,8 +2,6 @@
 
 51吃瓜免费App  https://4wqx13.myeyxm.com
 
-51吃瓜免费App 安卓下载安装包（备用） https://github.com/51chigua/51chigua/blob/main/51cg_1.7.0_230514_5.apk
-
 51吃瓜网页版最新官网 https://ccgg.me
 
 51吃瓜备用线路1 https://51cg.website
@@ -17,6 +15,11 @@
 加入微信扣扣粉丝群 https://ccgg.me/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/keqi7777
+
+
+51吃瓜免费App 安卓下载安装包（备用下载方式） https://github.com/51chigua/51chigua/blob/main/51cg_1.7.0_230514_5.apk
+
+
 
 ----------------------------
 
